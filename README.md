@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Zaydahub
 - 👀 I’m interested in all things tech and plants 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - Email: Zayda.Huballah@gmail.com
 
 <!---
