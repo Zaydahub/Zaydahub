@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zaydahub
+- 👋 Hi, I’m @Zaydahub 
 - 👀 I’m interested in all things tech and plants 
 - 📫 How to reach me - Email: Zayda.Huballah@gmail.com
 
